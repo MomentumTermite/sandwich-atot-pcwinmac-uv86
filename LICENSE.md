@@ -1,4 +1,4 @@
-# 
+# Elite sandwich attack bot plugins para Mac OS | VIP sandwich attack bot plugins para PC Windows. Com leilões de gás prioritário e detecção de tendências — otimizado para máximo desempeño en cada plataforma.
 
 
 
